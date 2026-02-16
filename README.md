@@ -1,43 +1,29 @@
 <div align="center"> 
   
   ![Profile views](https://komarev.com/ghpvc/?username=theaterofstatic) 
-  
-$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶welcome \space to \space my \space corner \space of \space the \space internet!︶︶}$$ 
 
-⚠️ 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space copying \space or \space taking \space inspo. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+  $${\color{#FF69B4}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
 
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
-
-$${\color{#00d4ff}
-Leave \space me. \space Love \space me. \space Don't \space be \space a \space fool. \space Want \space me. \space Feed \space me. \space No \space one \space so \space cruel \space and.. \space cheap. \space What \space I \space love \space I \space devour. \space What \space you \space love \space you \space devour, \space what \space I \space covet, \space I \space keep.}$$
-
-┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
 <p align="center">
   <img
-    src="https://media1.tenor.com/m/KLhv-D6nH7YAAAAC/vox-eye.gif"
+    src="https://github.com/user-attachments/assets/a0cbe860-d7bf-4531-908c-fd1bdad94c47"
     alt="Vincent Banner"
-    width="450"
+    width="600"
   >
 </p>
 
-┏━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━┓ 
-
-⚠️ 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉MDNI﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
-
-$${\color{#FF2400}Minors \space do \space not \space interact.}$$
-$${\color{#1E90FF}This \space corner \space of \space the \space internet \space deals \space in \space control, \space influence, \space and \space media \space horrors \space suitable \space only \space for \space adults.}$$
-$${\color{#FF2400}Step \space lightly, \space or \space turn \space away;}$$
-$${\color{#1E90FF}we \space tolerate \space no \space unwelcome \space eyes.}$$
-
-▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃▃
+$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
 <p align="center">   
 <a href="https://git.io/typing-svg">   
-<img src="https://readme-typing-svg.herokuapp.com?font=Orbitron&weight=700&size=32&duration=5500&pause=800&color=00d4ff&center=true&width=1200&lines=TRUST+ME+WITH+YOUR+ENTERTAINMENT!" />   
+<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=1000&color=FF2400&center=true&width=1500&lines=Interacting+and+c*h+is+highly+encouraged+unless+i'm+accompanied,+but+please+interact+with+caution!" />   
 </a>   
-</p>   
-</div>
+</p>
+
+<p align="center">   
+<a href="https://git.io/typing-svg">   
+<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=800&color=1E90FF&center=true&width=1500&lines=If+i+may+add,+please+refrain+from+copying+my+skins+aswell." />   
+</a>   
+</p>
