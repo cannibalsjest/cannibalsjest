@@ -18,12 +18,12 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉
 
 <p align="center">   
 <a href="https://git.io/typing-svg">   
-<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=1000&color=FF2400&center=true&width=1500&lines=Interacting+and+c*h+is+highly+encouraged+unless+i'm+accompanied,+but+please+interact+with+caution!" />   
+<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=1000&color=FF2400&center=true&width=1500&lines=interacting+and+c*h+is+highly+encouraged+unless+i'm+accompanied,+but+please+interact+with+caution!" />   
 </a>   
 </p>
 
 <p align="center">   
 <a href="https://git.io/typing-svg">   
-<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=800&color=1E90FF&center=true&width=1500&lines=If+i+may+add,+please+refrain+from+copying+my+skins+aswell." />   
+<img src="https://readme-typing-svg.herokuapp.com?font=IM+Fell+English+SC&weight=400&size=34&duration=7500&pause=800&color=1E90FF&center=true&width=1500&lines=if+i+may+add,+please+refrain+from+copying+my+skins+aswell." />   
 </a>   
 </p>
