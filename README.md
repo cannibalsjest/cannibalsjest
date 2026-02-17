@@ -1,28 +1,32 @@
 <div align="center"> 
   
-  ![I see you.](https://komarev.com/ghpvc/?username=theaterofstatic) 
+![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.+˙ᵕ˙&color=0f1a58&style=for-the-badge)
+
+<img width="713" height="275" alt="image" src="https://github.com/user-attachments/assets/6cb70710-609d-40d6-82b4-bc07183e87e6" />
   
-$${\color{#FF2400}ㅤㅤㅤㅤㅤㅤ��ㅤ ╰─╮ call \space me \space whatever \space you'd \space like. ╭─╯ }$$ 
-$${\color{#1E90FF}︶︶welcome \space to \space my \space little \space corner \space of \space the \space internet!︶︶}$$ 
+$${\color{#16267a} ╰─╮ i \space heavily \space fictionkin \space both \space alastor \space and \space vox \space unfortunately, \space therefore \space please \space interact \space with \space caution. ╭─╯}$$ 
 
 ⚠️ 
-$${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space copying \space or \space taking \space inspo \space off \space of \space my \space skins. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
+$${\color{#1e34a0}﹉﹉﹉﹉﹉﹉﹉﹉﹉NO \space copying \space or \space taking \space inspo \space off \space of \space my \space skins. ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
 ---
 
-$${\color{#FF69B4}
+$${\color{#2b4cbe}
 Leave \space me. \space Love \space me. \space Don't \space be \space a \space fool. \space Want \space me. \space Feed \space me. \space No \space one \space so \space cruel \space and.. \space cheap. \space What \space I \space love \space I \space devour. \space What \space you \space love \space you \space devour, \space what \space I \space covet, \space I \space keep.}$$
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$ 
 
-$${\color{#FF2400}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox \space or \space Hannibal \space throughout \space PonyTown. }$$
+$${\color{#7a181c}Call \space me \space flo, \space vin, \space al \space or \space by \space the \space name \space of \space whichever \space character \space i'm \space currently \space cosplaying. \space Nicknames \space are \space welcome \space too.}$$
 
-$${\color{#1E90FF}I \space have \space horrible \space dark \space humor \space that \space most \space would \space see \space as \space offensive \space so \space beware \space of \space that \space when \space interacting \space with \space me!}$$
+$${\color{#a0222b}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox \space or \space Hannibal \space throughout \space PonyTown.}$$
 
-$${\color{#FF2400}C+H \space is \space perfectly \space fine, \space and \space so \space is \space interacting \space unless \space i'm \space accompanied. }$$ 
+$${\color{#be2d32}I \space have \space horrible \space dark \space humor \space that \space most \space would \space see \space as \space offensive \space so \space beware \space of \space that \space when \space interacting \space with \space me!}$$ 
 
-$${\color{#FF69B4}ships \space i \space currently \space enjoy: \space radiostatic, \space radioapple, \space staticapple, \space hannigram, \space soukoku, \space tomtord, \space poolverine, \space spamtenna \space and \space funnybunny.  }$$
+$${\color{#d43a3f}C+H \space is \space perfectly \space fine, \space and \space so \space is \space interacting \space unless \space i'm \space accompanied.}$$
 
+$${\color{#be2d32}I \space dont \space accept \space random \space friend \space request. \space You \space have \space to \space have \space interacted \space with \space me \space beforehand.}$$ 
+
+$${\color{#a0222b}I \space also \space do \space not \space really \space roleplay \space with \space people, \space although \space i \space will \space reply \space in \space character \space occasionally.}$$
 
 $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ }$$
 
@@ -30,8 +34,7 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1071df87-37f7-48fa-b800-a89249e3cad4" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/61c2d700-bf30-4687-8a79-9850a41a4189" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ec29bd77-9f79-4f14-8f93-fdfe96f3fd76" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/62e9b0a3-5c08-4c19-9768-5735b0c69f97" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f05b44c1-efbc-431c-b3b9-fbd5ac973811" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f5e72601-2566-4a4a-bcd7-d44efaed7cb9" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/0ad3700d-42f5-43d4-8f61-5839d7e2c4c1" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/bc47f409-9e5a-40cf-ad5a-c802f63d1a7d" />
 
