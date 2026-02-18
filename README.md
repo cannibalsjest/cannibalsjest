@@ -2,6 +2,8 @@
   
 ![I See You.](https://komarev.com/ghpvc/?username=theaterofstatic&label=i+see+you.+˙ᵕ˙&color=0f1a58&style=for-the-badge)
 
+<img width="673" height="390" alt="image" src="https://64.media.tumblr.com/ae35f194d5e2fdd138e21823c9462fb1/df6b02b61ad85108-be/s1280x1920/588e5b175d2ae61a6498722e017e2e2d77971fe1.pnj" />
+
 <img width="673" height="390" alt="image" src="https://github.com/user-attachments/assets/d4e9c3e6-5081-42e7-b62d-02e220977618" />
   
 $${\color{#16267a} ╰─╮ i \space heavily \space fictionkin \space both \space alastor \space and \space vox \space unfortunately, \space therefore \space please \space interact \space with \space caution. ╭─╯}$$ 
