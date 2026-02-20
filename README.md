@@ -15,7 +15,7 @@ $${\color{#808080}﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉﹉﹉﹉﹉﹉﹉﹉ ﹉﹉
 
 $${\color{#7a181c}Call \space me \space flo, \space vin, \space al \space or \space by \space the \space name \space of \space whichever \space character \space i'm \space currently \space cosplaying. \space Nicknames \space are \space welcome \space too.}$$
 
-$${\color{#a0222b}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox, \space Dazai \space or \space Hannibal \space throughout \space PonyTown.}$$
+$${\color{#a0222b}I \space can \space mostly \space be \space spotted \space sitting \space around \space as \space Alastor, \space Vox, \space Dazai \space or \space Tartaglia \space throughout \space PonyTown.}$$
 
 $${\color{#be2d32}I \space have \space an \space atrocious \space sense \space of \space dark \space humor \space that \space most \space would \space see \space as \space offensive \space so \space beware \space of \space that \space when \space interacting \space with \space me.}$$ 
 
