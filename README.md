@@ -5,7 +5,7 @@
 <div align="center">
 
   
-  ![lilysdecor on tumblr](https://64.media.tumblr.com/1347bbc8d6487cbe0e9bb28a7d44be35/2f85eb11eee85d9a-eb/s2048x3072/317a3fa6af3bd2e35a047fbb7958f51f40fcb83d.gifv)
+  ![idog-graphics on tumblr](https://64.media.tumblr.com/7698f438a51ca8c19aa07424eca8018f/4588daf6817c1e34-08/s2048x3072/64677fd9526816fb0574aab5e8888341122b973a.pnj)
   
 
 $${\color{#d43a3f} Please \space do \space not \space copy, \space reference \space or \space take \space inspo \space off \space of \space my \space skins. \space Furthermore \space do \space check \space out \space my \space rentry!! }$$ 
