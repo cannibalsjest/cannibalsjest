@@ -4,7 +4,7 @@
 
 
 <p align="center">
-<img width="458" height="523" alt="image" src="https://64.media.tumblr.com/fc7521f92995f39542b65114214e95a8/65a5ab3176065ffa-a7/s1280x1920/4a14ad38a9684aee63cce4bee040c6f71d921a1f.pnj" />
+<img width="458" height="523" alt="image" src="https://github.com/user-attachments/assets/44d679c2-1856-4518-85f8-ed95a88d71cf" />
 
 
 
