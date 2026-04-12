@@ -11,7 +11,7 @@
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&duration=3200&pause=1800&color=7979f2&center=true&vCenter=true&width=750&lines=Welcome+to+My+Network." />
+  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&duration=3200&pause=1800&color=7979f2&center=true&vCenter=true&width=750&lines=Welcome+to+My+Github." />
 </p>
 
 
