@@ -1,59 +1,37 @@
 <div align="center"> 
   
-![Smile, Dear.](https://komarev.com/ghpvc/?username=theaterofstatic&label=smile+my+dear.&color=7c6744&style=for-the-badge)
-
-<p align="center">
-<img width="640" height="53" alt="image" src="https://64.media.tumblr.com/642ad145a7edf6325b3cdb60ce1f6e73/bbb5d3d6d8154d93-fe/s2048x3072/5030847ba022a610eb6cb015f2c7d9ca6bd610a5.pnj" />
+![Just me.](https://komarev.com/ghpvc/?username=theaterofstatic&label=trust+me.+just+me.&color=090961&style=for-the-badge)
 
 
 <p align="center">
-<img width="458" height="523" alt="image" src="https://github.com/user-attachments/assets/ba2ca3b0-663d-4f71-93ae-5ef73a56cca0" />
+<img width="458" height="523" alt="image" src="https://64.media.tumblr.com/fc7521f92995f39542b65114214e95a8/65a5ab3176065ffa-a7/s1280x1920/4a14ad38a9684aee63cce4bee040c6f71d921a1f.pnj" />
 
 
 
-<img width="640" height="53" alt="image" src="https://64.media.tumblr.com/642ad145a7edf6325b3cdb60ce1f6e73/bbb5d3d6d8154d93-fe/s2048x3072/5030847ba022a610eb6cb015f2c7d9ca6bd610a5.pnj" />
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Zen+Old+Mincho&duration=4800&pause=2600&color=7c6744&center=true&width=750&lines=What+has+brought+you+to+Me%3F" />
+  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&duration=3200&pause=1800&color=7979f2&center=true&vCenter=true&width=750&lines=Welcome+to+My+Network." />
 </p>
 
 
 
 
+<p align="center">
+                                               You may call me vincent/vin/vinny etc.
+<p align="center">
+                                                     Any pronouns are fine, i dont really care what gender im perceived as.
 
 <p align="center">
-${
-\textsf{
-\color{#6f4d41}Welcome,\ you\ may\ call\ me\
-\color{#9a6a5e}Vin
-\color{#6f4d41}\ or\ 
-\color{#9a6a5e}Al.
-\color{#6f4d41}I\ do\ not\ care\ about\
-\color{#9a6a5e}which\ pronouns\
-\color{#6f4d41}\ you\ use\ for\ me.\
-\color{#6f4d41}Feel\ free\ to\ 
-\color{#9a6a5e}int/cuddle
-\color{#6f4d41}\ when\ i'm\ not\ accompanied.\ }
-}$
-</p>
-  
-
+Sarcastic Jester Alert!! Do not take me seriously!
+<p align="center">
+                                                      I am an ENTP, introverted extrovert!
 
  <p align="center">
-${
-\textsf{
-\color{#6f4d41}Furthermore,\ 
-\color{#9a6a5e}read\ my\ rentry.
-\
-\color{#6f4d41}Thank\ you,\ 
-\color{#9a6a5e}Doll.
-}
-}$
-</p>
+                                                       C+H only when im by myself and not accompanied.
+ <p align="center">
+                                                      Read my Rentry for a bit more Info on me!
 
-↓↓↓
+   ↓↓↓
 
 ## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/massacremedia)
-
-$${\color{#7c6744} (credit \space for \space the \space dividers: \space bonnieknowsbest \space on \space tumblr) }$$ 
