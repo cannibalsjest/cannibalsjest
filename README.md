@@ -34,4 +34,4 @@ Sarcastic Jester Alert!! Do not take me seriously!
 
    ↓↓↓
 
-## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/massacremedia)
+## [𝐑𝐄𝐍𝐓𝐑𝐘](https://rentry.co/tvshaark)
