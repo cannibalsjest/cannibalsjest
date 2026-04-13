@@ -18,19 +18,19 @@
 
 
 <p align="center">
-                                               You may call me flo, vin, al, etc.
+                                               𝐘𝐨𝐮 𝐦𝐚𝐲 𝐜𝐚𝐥𝐥 𝐦𝐞 𝐟𝐥𝐨, 𝐯𝐢𝐧, 𝐚𝐥, 𝐞𝐭𝐜.
 <p align="center">
-                                                     Any pronouns are fine, i dont really care what gender im perceived as.
+                                                     𝐀𝐧𝐲 𝐏𝐫𝐨𝐧𝐨𝐮𝐧𝐬 𝐚𝐫𝐞 𝐟𝐢𝐧𝐞, 𝐢 𝐝𝐨𝐧𝐭 𝐜𝐚𝐫𝐞 𝐰𝐡𝐚𝐭 𝐠𝐞𝐧𝐝𝐞𝐫 𝐢𝐦 𝐩𝐞𝐫𝐜𝐞𝐢𝐯𝐞𝐝 𝐚𝐬.
 
 <p align="center">
-Sarcastic Jester Alert!! Do not take me seriously!
+𝐒𝐚𝐫𝐜𝐚𝐬𝐭𝐢𝐜 𝐉𝐞𝐬𝐭𝐞𝐫 𝐀𝐥𝐞𝐫𝐭!! 𝐃𝐨 𝐧𝐨𝐭 𝐭𝐚𝐤𝐞 𝐦𝐞 𝐬𝐞𝐫𝐢𝐨𝐮𝐬𝐥𝐲!
 <p align="center">
-                                                      I am an ENTP, introverted extrovert!
+                                                      𝐈 𝐚𝐦 𝐚𝐧 𝐄𝐍𝐓𝐏, 𝐈𝐧𝐭𝐫𝐨𝐯𝐞𝐫𝐭𝐞𝐝 𝐄𝐱𝐭𝐫𝐨𝐯𝐞𝐫𝐭.
 
  <p align="center">
-                                                       C+H only when im by myself and not accompanied.
+                                                       𝐂+𝐇 𝐨𝐧𝐥𝐲 𝐰𝐡𝐞𝐧 𝐢𝐦 𝐛𝐲 𝐦𝐲𝐬𝐞𝐥𝐟 𝐚𝐧𝐝 𝐧𝐨𝐭 𝐚𝐜𝐜𝐨𝐦𝐩𝐚𝐧𝐢𝐞𝐝.
  <p align="center">
-                                                      Read my Rentry for a bit more Info on me!
+                                                      𝐑𝐞𝐚𝐝 𝐦𝐲 𝐑𝐞𝐧𝐭𝐫𝐲 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐈𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧.
 
    ↓↓↓
 
