@@ -16,4 +16,4 @@ $\color{#792c08}{\textsf{𝑊𝑒𝑙𝑐𝑜𝑚𝑒 𝐷𝑒𝑒𝑟𝑠 !}}$ 
       $\color{#3f4f59}{\textsf{𝐼 𝑎𝑚 𝑎𝑛 𝑬𝑵𝑻𝑷, 𝑎𝑛 𝑖𝑛𝑡𝑟𝑜𝑣𝑒𝑟𝑡𝑒𝑑 𝑒𝑥𝑡𝑟𝑜𝑣𝑒𝑟𝑡.}}$ <br>
       $\color{#325762}{\textsf{⤥ 𝑃𝑙𝑒𝑎𝑠𝑒 𝑑𝑜 𝑐ℎ𝑒𝑐𝑘 𝑜𝑢𝑡 𝑚𝑦 𝑹𝒆𝒏𝒕𝒓𝒚 𝑏𝑒𝑙𝑜𝑤. ⤦}}$ <br>
 
-[ℛℯ𝓃𝓉𝓇𝓎](https://rentry.co/sharksjest)
+[ℛℯ𝓃𝓉𝓇𝓎](https://rentry.co/harleqvin)
